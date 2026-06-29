@@ -1,4 +1,4 @@
-#  
+#  plants vs brainrots no-ban Scripts is the best plants vs brainrots Script, featuring private server access and unlimited stamina. Safe and powerful
 
 
 
